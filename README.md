@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Redwan-Hossain-016
+- 👋 Hi, I’m Redwan Hossain.
 - 👀 I’m interested in sports, travelling, automotive technologies.
 - 🌱 I’m currently doing my undergraduate in Mechanical Engineering.
 - 💞️ I’m looking to collaborate on with different vehicle enthusiast.
